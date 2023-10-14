@@ -1,3 +1,5 @@
 # Lic.-en-Sistemas-UNLP-
   𖧧  ˖ ࣪ .  ¿cansado de no encontrar buenos resumenes/consejos/tips para materias de la carrera? entonces este es el repositorio perfecto para vos      
-  en fin, gente ponganle ganas
+  ᯤ     𓈒  acompañame a recorrer este largo camino conmigo ᰋ      ݁       ੭ 
+  ❍     ݁ si quieres aportar algo relacionado con las materias, mi gmail es pv.sofiadulce@gmail.com
+♡˗ˏ✎*ೃ˚ :cherries: :;
